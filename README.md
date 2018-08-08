@@ -1,1 +1,1 @@
-katherine so's first repository
+Katherine is Jinju's favorite human
